@@ -20,8 +20,3 @@
 2. Assim que o frango estiver bem cozido, acrescenta o molho de tomate, o ketchup a mostarda e campignon a gosto.
 3. abaixe o fogo e coloque o creme de leite e mexa bem até se tornar um creme homogêneo.
 4. está pronto para servir.
-
-
-
-
-
